@@ -1,0 +1,1 @@
+# lomatoz-shop
